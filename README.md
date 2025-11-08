@@ -14,4 +14,4 @@ Menjadi developer yang bermanfaat dan berkontribusi untuk masyarakat melalui tek
 ## 🌐 Hubungi Saya
 - 📧 Email: [vivi18111999@gmail.com]
 - 🚀 Media Sosial: [the0nly.cypaa13]
-- 💻 GitHub: [https://github.com/sifavivi](https://github.com/sifavivi
+- 💻 GitHub: [https://github.com/sifavivi](https://github.com/sifavivi)
